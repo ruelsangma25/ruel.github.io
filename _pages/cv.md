@@ -185,14 +185,16 @@ B. Communication skills
   
 Service and leadership
 ======
-* Organizational / managerial skills:
+A. Organizational / managerial skills:
+======
 • Long professional experiences have complemented with academic background, providing with a well-rounded perspective on public policy and governance, development, and conflict resolution.
 
 • Profound knowledge on development projects and leadership roles within the organization underscore competency to apply theoretical knowledge to practical challenges, making significant contributions to field.
 
 • Academic accomplishments, combined with professional experience and dedication to public service, make an ideal candidate. An exceptional individual who will undoubtedly make valuable contributions to the program and benefit greatly from the opportunities it offers.
 
-Job-related skills:
+B. Job-related skills:
+======
 • Good command of project management, project implementation and project monitoring.
 
 • Profound knowledge on public financial management and accounting.
